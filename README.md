@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @yasua006 
+- 🌱 I’m currently learning Luau
+- 😄 Pronouns: He
