@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @yasua006 
-- 📚 Purpose: School
+- 📚 Purpose of this account: School
